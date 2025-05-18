@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **HTML5,CSS**
 
-- 📫 How to reach me **djoy174@gmail.com**
+- 📫 How to reach me **djoy1174@gmail.com**
 
 - ⚡ Fun fact **I Think I'm Funny**
 
